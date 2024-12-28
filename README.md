@@ -3,4 +3,4 @@
 
 ## Contatos
 
-Wellington Gouveia - [@twitter](https://twitter.com/) - email@gmail.com
+Wellington Gouveia - 
